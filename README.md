@@ -1,0 +1,2 @@
+m08_uf2_elteucognom
+taulapokemon.html
